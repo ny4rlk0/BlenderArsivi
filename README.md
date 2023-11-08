@@ -74,3 +74,19 @@ patreon@nyarlko Furniture Bookshelf Multicolor Lucky13.zip
 -----------------------------------------------------------------------------------------------
 
 <img src="RenderSS.jpg"></img>
+Ornament_Pumpkin_Lucky13_Patreon_Nyarlko.zip
+
+3D Ornament Yellow Blender
+-----------------------------------------------------------------------------------------------
+Ornament_Yellow_Patreon_nyarlko.zip
+<img src="SS_UP.jpg"></img>
+
+SAR9 SP Çizim
+-----------------------------------------------------------------------------------------------
+<img src="SAR9SP.png"></img>
+
+Illustration
+-----------------------------------------------------------------------------------------------
+Patreon4.7z.001
+Patreon4.7z.003
+Patreon4.7z.002
